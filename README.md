@@ -1,7 +1,6 @@
 # AiPrompt
 
-# [Window Download](https://wwus.lanzouk.com/iEoy00zr96zi)
-### Password: 123
+# [Window Download](https://wwus.lanzouk.com/ii6Iw10w256h)
 
 # [Macos Download](https://wwus.lanzouk.com/iAJKz0zra9sf)
 
